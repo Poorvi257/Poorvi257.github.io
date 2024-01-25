@@ -1,2 +1,2 @@
-# poorvi257s.github.io
+# poorvi257.github.io
 My Nice cute website
